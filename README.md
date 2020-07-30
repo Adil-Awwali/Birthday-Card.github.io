@@ -1,2 +1,2 @@
 # Happy Birthday
-Happy 18th Burthday Talitha
+Happy 18th Birthday Talitha
